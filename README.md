@@ -2,7 +2,7 @@
 
 ### About me
 
-My name is Mohan, I love browsers and hack for fun and profit
+My name is Mohan, I love browsers and I hack for fun and profit
 
 ### How to reach me
 
